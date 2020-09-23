@@ -1,2 +1,3 @@
 # INTRO
 Basics
+LIST FOR SHOPPING
